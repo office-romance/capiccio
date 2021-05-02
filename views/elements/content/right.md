@@ -4,7 +4,7 @@
 
 
 
-If you are a new brand or looking to create a new experience, get in touch to see how we can full create a world for you.
+Whether you are a new brand, needing an update or looking to create a new experiences, get in touch to see how we can create a corner of the world with you.
 
 We work with clients to:
 ## Worldbuilding
